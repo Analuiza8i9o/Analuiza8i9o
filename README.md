@@ -8,3 +8,5 @@
 Você pode entrar em contato comigo ⤵️
 
 Instagram:@ana_luizaa06
+
+-Tenho uma irmã de alma e amo muito ela! TE AMO TENÒRIO!!👩‍❤️‍👩🫀
